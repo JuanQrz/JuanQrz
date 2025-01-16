@@ -14,7 +14,7 @@
 
 🌐 Conéctate conmigo
 
-• www.linkedin.com/in/juan-alfredo-quiroz-ontiveros-3007a9280 🤝
+www.linkedin.com/in/juanqrz 🤝
 
 ✍️ Objetivos
 
